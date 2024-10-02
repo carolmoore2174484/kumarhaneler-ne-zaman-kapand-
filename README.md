@@ -1,0 +1,1 @@
+# kumarhaneler-ne-zaman-kapand-
